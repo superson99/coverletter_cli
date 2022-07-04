@@ -1,3 +1,4 @@
 hi
 Yonsei University
-손대훈이요.
+entered in 2017
+my name is daehoon son
